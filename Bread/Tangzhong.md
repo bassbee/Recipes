@@ -1,4 +1,4 @@
-## Tangzhong
+## Tangzhong Milk Bread
 
 *Ingredients*
 * 620 g bread flour
