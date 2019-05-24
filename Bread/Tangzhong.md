@@ -1,16 +1,16 @@
 ## Recipes
 
 *Ingredients*
-⋅⋅*620 g bread flour
-⋅⋅*200 g water
-⋅⋅*60 g sugar
-⋅⋅*12 g salt
-⋅⋅*10 g dry yeast
-⋅⋅*10 g dry milk
-⋅⋅*260 g milk
-⋅⋅*50 g egg
-⋅⋅*50 g unsalted butter (room temp)
-⋅⋅*2 TBSP milk or heavy cream
+⋅⋅* 620 g bread flour
+⋅⋅* 200 g water
+⋅⋅* 60 g sugar
+⋅⋅* 12 g salt
+⋅⋅* 10 g dry yeast
+⋅⋅* 10 g dry milk
+⋅⋅* 260 g milk
+⋅⋅* 50 g egg
+⋅⋅* 50 g unsalted butter (room temp)
+⋅⋅* 2 TBSP milk or heavy cream
 
 **Use a dough hook**
 1. To create the tangzhong combine 40 g of bread flour and 200 g water in saucepan. Keep on medium heat and stir constantly for about 10 minutes until mixture thickens and becomes almost elastic, pulling off the bottom of the pan as you mix. 
