@@ -1,4 +1,4 @@
-## Recipes
+## Tangzhong
 
 *Ingredients*
 * 620 g bread flour
